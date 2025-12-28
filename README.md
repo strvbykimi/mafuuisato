@@ -16,6 +16,10 @@ Ur my first hoyo friend :> (genshin specifically)
 I always took my time w you and i luv ur
 humourr <3 thank you for being there!
 
+Our16bitwars / Adachi / Kiyo 
+i met u awhile ago, but ur generally so nice n' kind ^_^ also, i like ur yapping, u can always talk to me if needed!
+ik u were first shy, but thank u for being my friend aswell!
+
 anybody reading this (not in these mentions)
 i hope i can be ur friend!
 These 3 are the only ones im currently int with 
