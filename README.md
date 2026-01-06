@@ -11,7 +11,8 @@ Ur always online when im sleeping T_T
 @DWnecrozzma / necro 
 Ur the one i hang out most of the time!!
 im abit lonely but you were there for me,
-thank you! <3
+thank you! <3 
+![Your Banner](https://64.media.tumblr.com/b3299a13aa57ce1dd39374c55a2736a8/0dd5d8298261d9d8-9b/s75x75_c1/b110a415a62f8d2e4db456a97d1984bd22db2a33.gif)
 
 @yearningly / Cherie
 Ur my first hoyo friend :> (genshin specifically)
@@ -20,7 +21,8 @@ humourr <3 thank you for being there!
 
 @Our16bitwars / Adachi / Kiyo 
 i met u awhile ago, but ur generally so nice n' kind ^_^ also, i like ur yapping, u can always talk to me if needed!
-ik u were first shy, but thank u for being my friend aswell, thank u for hanging out with me when i was alone.. you can always come back to me for comfort <3 ILYT ᯓ★
+ik u were first shy, but thank u for being my friend aswell, thank u for hanging out with me when i was alone.. you can always come back to me for comfort <3 ILYT ᯓ★ 
+![Your banner](https://files.catbox.moe/j6j0io.gif)
 
 kiyo , necro = FAV TRIO i love u gys!
 
