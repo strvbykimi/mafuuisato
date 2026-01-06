@@ -20,7 +20,7 @@ humourr <3 thank you for being there!
 
 @Our16bitwars / Adachi / Kiyo 
 i met u awhile ago, but ur generally so nice n' kind ^_^ also, i like ur yapping, u can always talk to me if needed!
-ik u were first shy, but thank u for being my friend aswell, thank u for hanging out with me when i was alone.. you can always come back to me for comfort <3
+ik u were first shy, but thank u for being my friend aswell, thank u for hanging out with me when i was alone.. you can always come back to me for comfort <3 ILYT ᯓ★
 
 kiyo , necro = FAV TRIO i love u gys!
 
