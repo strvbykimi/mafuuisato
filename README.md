@@ -1,12 +1,6 @@
 # FRIENDS!
 
 ![Your Banner](https://img1.picmix.com/output/stamp/normal/2/7/6/2/2652672_dd130.png)
-@Snowdrbbqns / Yuko
-Thank you for hanging out w me at the 
-time i started! U were one of my 1st friends,
-thank you for that <3
-i hope we can talk soon again since
-Ur always online when im sleeping T_T
 
 @DWnecrozzma / necro 
 Ur the one i hang out most of the time!!
