@@ -51,7 +51,6 @@ fotowall ᯓ★
 
 [Kiyo's Github](https://github.com/Our16bitwars)
 
-[Mafu's Github](https://github.com/Snowedribbqns)
 
 [Necro's Github](https://github.com/DWnecrozzma)
 
